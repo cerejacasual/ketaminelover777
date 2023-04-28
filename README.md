@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @cerejacasual
+- 👋 Hi, I’m ketaminelover
 - 👀 I’m interested in ... music, nature, sex and food
-- 🌱 I’m currently learning ... bass 
+- 🌱 I’m currently learning ... greek 
 - 💞️ I’m looking to collaborate on ... a band
 - 📫 How to reach me ... @cerejacasual 
 
