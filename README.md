@@ -1,4 +1,4 @@
-- 👋 Hi, I’m ketaminelover
+- 👋 Hi, I’m lizard killer
 - 👀 I’m interested in ... music, nature, sex and food
 - 🌱 I’m currently learning ... greek 
 - 💞️ I’m looking to collaborate on ... a band
